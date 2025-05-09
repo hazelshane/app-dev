@@ -1,3 +1,3 @@
 # app-dev
 My first respiratory 
-I love The Hunger Games because it’s not just action-packed, but it also challenges viewers to think about society, power, and resistance. Katniss’s journey is inspiring and emotional, and the world-building is intense and memorable.
+The Marvel Cinematic Universe (MCU) is a series of superhero movies based on Marvel Comics. It features popular characters like Iron Man, Captain America, Thor, and Spider-Man. These heroes team up to fight powerful villains and save the world. I like Marvel because it’s exciting, inspiring, and full of action and heart.
